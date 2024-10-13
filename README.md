@@ -2,7 +2,7 @@
 
 David here. An aspiring data scientist 👨‍💻 with a background of engineering 🛜 and management💼, trying to make the best of my time as a full-time student in Madrid, Spain (should visit if you haven't!) 🇪🇸.
 
-Crazy passionate about airplanes ✈️ (always looking up), sports 🏋️‍♂️🍎, nature 🏞️ and new tech 💡.
+Crazy passionate about airplanes ✈️ (always looking up), sports 🏋️‍♂️, nature 🏞️ and new tech 💡.
 
 Always open to coffee ☕, a walk in Retiro park 🌲 and a nice chat.
 
