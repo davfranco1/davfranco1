@@ -4,7 +4,7 @@ I'm an aspiring data scientist with a background of engineering and management, 
 
 Crazy passionate about airplanes, sports and new tech.
 
-Always open to new conversations. reach me anytime at linkedin.com/in/franco-david.
+Always open to coffee and a a nice chat. Reach me anytime at linkedin.com/in/franco-david.
 
 Cheers!
 
