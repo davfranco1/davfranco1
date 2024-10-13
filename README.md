@@ -1,10 +1,10 @@
 ## Hi there 👋
 
-I'm an aspiring data scientist with a background of engineering and management, trying to make the best of my time as a full-time student in Madrid, Spain.
+David here. An aspiring data scientist with a background of engineering and management, trying to make the best of my time as a full-time student in Madrid, Spain.
 
 Crazy passionate about airplanes, sports and new tech.
 
-Always open to coffee and a a nice chat. Reach me anytime at linkedin.com/in/franco-david.
+Always open to coffee, a walk in Retiro park and a nice chat. Reach me anytime at linkedin.com/in/franco-david.
 
 Cheers!
 
