@@ -8,7 +8,7 @@ Always open to coffee ☕, a walk in Retiro park 🌲 and a nice chat.
 
 💬 Reach me anytime at linkedin.com/in/franco-david.
 
-My life mantra: do good and good will come to you! 😎 Cheers!
+My life mantra: do good and good will come to you. Cheers!
 
 <!--
 **davfranco1/davfranco1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
