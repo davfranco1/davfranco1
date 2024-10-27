@@ -4,7 +4,7 @@ An aspiring data scientist 👨‍💻 with a background of engineering 🛜 and
 
 Crazy passionate about airplanes ✈️ (always looking up), sports 🏋️‍♂️, nature 🏞️ and new tech 💡.
 
-Always open to coffee ☕, a walk in Retiro park 🌲 and a nice chat.
+Always open to a fresh brew ☕ and a nice chat.
 
 💬 Reach me anytime at linkedin.com/in/franco-david.
 
