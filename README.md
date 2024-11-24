@@ -1,8 +1,8 @@
 ## Hi there 👋 David here.
 
-An aspiring data scientist 👨‍💻 with a background of engineering 🛜 and management 💼, trying to make the best of my time as a full-time student in Madrid, Spain 🇪🇸.
+Data scientist 👨‍💻 with a background of engineering 🛜 and management 💼, fluent in Spanish, English, Portuguese and currently learning German, based in Madrid, Spain 🇪🇸.
 
-Passionate about airplanes ✈️, sports 🏋️‍♂️, nature 🏞️ and new tech 💡.
+Passionate about new tech 💡, airplanes ✈️, sports 🏋️‍♂️ and the great outdoors 🏞️.
 
 Always open to a fresh brew ☕ and a nice chat.
 
