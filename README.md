@@ -2,13 +2,13 @@
 
 An aspiring data scientist 👨‍💻 with a background of engineering 🛜 and management 💼, trying to make the best of my time as a full-time student in Madrid, Spain 🇪🇸.
 
-Crazy passionate about airplanes ✈️ (always looking up), sports 🏋️‍♂️, nature 🏞️ and new tech 💡.
+Passionate about airplanes ✈️, sports 🏋️‍♂️, nature 🏞️ and new tech 💡.
 
 Always open to a fresh brew ☕ and a nice chat.
 
 💬 Reach me anytime at linkedin.com/in/franco-david.
 
-My life mantra: do good and good will come to you. Cheers!
+My life mantra: do good and good will come to you.
 
 <!--
 **davfranco1/davfranco1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
