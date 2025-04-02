@@ -1,6 +1,6 @@
 ## Hi there 👋 David here.
 
-Data scientist 👨‍💻 with a background of engineering 🛜 and management 💼, fluent in Spanish, English, Portuguese and currently learning German, based in Madrid, Spain 🇪🇸.
+Data scientist 👨‍💻 with a background of engineering 🛜 and management 💼, fluent in Spanish, English and Portuguese, learning German, based in Madrid, Spain 🇪🇸.
 
 Passionate about new tech 💡, airplanes ✈️, sports 🏋️‍♂️ and the great outdoors 🏞️.
 
